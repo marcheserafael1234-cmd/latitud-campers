@@ -1,1 +1,0 @@
-# latitud-campers
